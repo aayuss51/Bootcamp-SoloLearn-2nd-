@@ -1,5 +1,5 @@
 
-![Solo Learn logo png](https://github.com/user-attachments/assets/3b2af72c-bc8d-4365-b2d5-c9a41c0fe8a3)
+                          ![Solo Learn logo png](https://github.com/user-attachments/assets/3b2af72c-bc8d-4365-b2d5-c9a41c0fe8a3)
 
 
 
